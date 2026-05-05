@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on: High-impact Tech Products
 - 🤔 I’m looking for help with: Growth, Monetization & Scalable Architecture
 - 💬 Ask me about: Coding, Startups, UI Design & Productivity
-- 📫 How to reach me: your-email@example.com
+- 📫 How to reach me:rathoddharam563@gmail.com
 - 😄 Pronouns:DHARAM RATHOD
 - ⚡ Fun fact: I build faster than I overthink 😄
 
